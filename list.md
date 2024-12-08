@@ -29,7 +29,7 @@
    - 现价：$80
    - [商品链接](https://www.amazon.com/dp/B0B1B3VZLD?ref=ppx_pop_mob_ap_share)
 
-5. **洗拖地一体机器人**
+5. **洗拖地一体机器人(已预订)**
 
    - 型号：Deebot X1 Omni
    - 原价：$700
@@ -65,7 +65,7 @@
 
 ![alt text](fd7a139678c7ab517a9c4b37d9d12cf.jpg)
 
-10. **空气炸锅**
+10. **空气炸锅(已预订)**
 
     - 现价：$10
 
@@ -79,8 +79,7 @@
 
 - 提货时间：需 12.20 号以后
 
-
-    ![alt text](c00ac0597d4a696630dfae113312115.jpg)
+  ![alt text](c00ac0597d4a696630dfae113312115.jpg)
 
 12. **电水壶** - 现价：$5
     ![alt text](179938a46e13bba73ba506fb7519b0c.jpg)

@@ -22,12 +22,7 @@
 
 #### 电子产品
 
-4. **2K 144Hz 显示器**
-
-   - 型号：KOORUI 27 Inch QHD Gaming Monitor
-   - 原价：$161
-   - 现价：$80
-   - [商品链接](https://www.amazon.com/dp/B0B1B3VZLD?ref=ppx_pop_mob_ap_share)
+4. **2K 144Hz 显示器(已出售)**
 
 5. **洗拖地一体机器人(已出售)**
 
@@ -84,10 +79,7 @@
 - 现价：$10
   ![alt text](06fa180d9980878a11c7df90878b68c.jpg)
 
-15. **投影仪 Dxyiitoo Model S3 WIFI Bluetooth HD Multimedia Projector**
-
-- 现价：$20
-  - [商品链接](https://www.ebay.com/itm/126366290147?_skw=dxyiitoo+projector+s+3&itmmeta=01JEM2RAXMW7VE17EP92XPG5YK&hash=item1d6c0490e3:g:ny8AAOSwfidl6eta&itmprp=enc%3AAQAJAAAA8HoV3kP08IDx%2BKZ9MfhVJKl3wB3wKnKr%2Bs07mkRlVTtTb1JTOliV4SEAsdiQajGPFMiSCq2QeVhxHTHBsLM0V63R%2FzwTTN1IZt%2BzqE70786VA5wO80hBW3X0vxEHMjhYC6bqMT4vnXa%2FQDoKUN7owuSli6Ni7SHveHm3qIkLAps5WqdyQJ2oKyLzcQquw1UuL4u%2FRECVo9%2FgIvzMy040A2G4QFANTPlmpdxStx%2BsIUU8yDZZ87HBrFUCy2QYWPlwNtGqruNAfiMQfvaJY%2FChnPA5pVvDdjH5nrv9HYj7%2BkIIT2pOfZhDLMZxmMd3KFP4kQ%3D%3D%7Ctkp%3ABk9SR_Su4YL1ZA)
+15. **投影仪 Dxyiitoo Model S3 WIFI Bluetooth HD Multimedia Projector(已出售)**
 
 #### 其他生活用品
 

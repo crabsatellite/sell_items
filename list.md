@@ -31,10 +31,11 @@
    - 特点：可定时任务，地图记忆  
    - [商品链接](https://a.co/d/0mfMlyG)
 
-6. **惠普打印机**  
-   - 现价：$20  
+6. **惠普打印机HP LaserJet M110we**  
+   - 现价：$20
+   - [商品链接](https://www.ebay.com/itm/365056078822?chn=ps&norover=1&mkevt=1&mkrid=711-117182-37290-0&mkcid=2&mkscid=101&itemid=365056078822&targetid=2299003535955&device=c&mktype=pla&googleloc=9197900&poi=&campaignid=21214315381&mkgroupid=161363866036&rlsatarget=aud-1480434318228:pla-2299003535955&abcId=9407526&merchantid=6296724&gad_source=1&gclid=Cj0KCQiApNW6BhD5ARIsACmEbkUe2tbMQT4BebNOx7CloHfzdmziJ2jf6GUUTnqwk8gi0hi2tQviGoIaAkjFEALw_wcB)
 
-7. **电吹风**  
+7. **电吹风7 MAGIC Model 7M318**  
    - 现价：$5
 
 8. **体重电子称 x 2**  
@@ -45,13 +46,13 @@
    - 现价：$5  
 
 9. **手拉车**  
-   - 现价：$5  
+   - 现价：$10  
 
 10. **空气炸锅**  
-    - 现价：$5  
+    - 现价：$10  
 
 11. **电饭锅**  
-    - 现价：$5  
+    - 现价：$10  
 
 12. **电水壶**  
     - 现价：$5  

@@ -77,7 +77,7 @@
     ![alt text](c00ac0597d4a696630dfae113312115.jpg)
 
 12. **电水壶** - 现价：$5
-    ![alt text](034fcd0de37b935cddc596cdbdee485.jpg)
+    ![alt text](179938a46e13bba73ba506fb7519b0c.jpg)
 
 #### 其他生活用品
 

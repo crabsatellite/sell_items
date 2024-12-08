@@ -86,6 +86,21 @@
 
 - 提货时间：需 12.20 号以后
 
+13. **全新插线板未拆封两个**
+
+- 现价：$10
+  ![alt text](8a94d9e9c94816175efb44730932e4e.jpg)
+
+14. **HTC VIVE VR 支架**
+
+- 现价：$10
+  ![alt text](06fa180d9980878a11c7df90878b68c.jpg)
+
+15. **投影仪 Dxyiitoo Model S3 WIFI Bluetooth HD Multimedia Projector**
+
+- 现价：$20
+  - [商品链接](https://www.ebay.com/itm/126366290147?_skw=dxyiitoo+projector+s+3&itmmeta=01JEM2RAXMW7VE17EP92XPG5YK&hash=item1d6c0490e3:g:ny8AAOSwfidl6eta&itmprp=enc%3AAQAJAAAA8HoV3kP08IDx%2BKZ9MfhVJKl3wB3wKnKr%2Bs07mkRlVTtTb1JTOliV4SEAsdiQajGPFMiSCq2QeVhxHTHBsLM0V63R%2FzwTTN1IZt%2BzqE70786VA5wO80hBW3X0vxEHMjhYC6bqMT4vnXa%2FQDoKUN7owuSli6Ni7SHveHm3qIkLAps5WqdyQJ2oKyLzcQquw1UuL4u%2FRECVo9%2FgIvzMy040A2G4QFANTPlmpdxStx%2BsIUU8yDZZ87HBrFUCy2QYWPlwNtGqruNAfiMQfvaJY%2FChnPA5pVvDdjH5nrv9HYj7%2BkIIT2pOfZhDLMZxmMd3KFP4kQ%3D%3D%7Ctkp%3ABk9SR_Su4YL1ZA)
+
 #### 其他生活用品
 
 - **餐具、菜刀、锅碗瓢盆、生活消耗品**：可视情况作为赠品，具体请私聊。

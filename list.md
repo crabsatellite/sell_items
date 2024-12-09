@@ -78,6 +78,21 @@
 
 15. **投影仪 Dxyiitoo Model S3 WIFI Bluetooth HD Multimedia Projector(已出售)**
 
+16. **匕首（未使用）**
+
+- 现价：$10
+  ![alt text](03782614825e98e8ff820721bb43eef.jpg)
+
+16. **伸缩防身棍（未使用）**
+
+- 现价：$10
+  ![alt text](4b8efe2da684911ef43f4ccffe34b2a.jpg)
+
+17. **迷你搅拌机**
+
+- 现价：$10
+  ![alt text](e9217cb95785e71974823ed2cfa2916.jpg)
+
 #### 其他生活用品
 
 - **餐具、菜刀、锅碗瓢盆、生活消耗品**：可视情况作为赠品，具体请私聊。

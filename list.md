@@ -14,24 +14,10 @@
    - 现价：免费！
    - [商品链接](https://www.amazon.com/dp/B0BKSCMG37?ref=ppx_pop_mob_ap_share)
 
-3. **电脑椅**
-
-   - 现价：免费！
-   - [商品链接](https://www.amazon.com/dp/B0B8CTHFYF?ref=ppx_pop_mob_ap_share)
-
-4. **餐桌**
-
-   - 现价：免费！
-     ![alt text](bd6c66f34ccc9ae648dfcc7450ce60e.jpg)
-
-5. **餐椅**
-
-   - 现价：免费！
-     ![alt text](eace5cc8944ca0c9fb51db243140b84.jpg)
-
-6. **塑料储物柜**
-   - 现价：免费！
-     ![alt text](32f6b65e1f81f8fec4e6d3a184792cc.jpg)
+3. **电脑椅(已出售)**
+4. **餐桌(已出售)**
+5. **餐椅(已出售)**
+6. **塑料储物柜(已出售)**
 
 #### 电子产品
 
@@ -39,10 +25,7 @@
 
 5. **洗拖地一体机器人(已出售)**
 
-6. **惠普打印机 HP LaserJet M110we**
-
-   - 现价：$20
-   - [商品链接](https://www.ebay.com/itm/365056078822?chn=ps&norover=1&mkevt=1&mkrid=711-117182-37290-0&mkcid=2&mkscid=101&itemid=365056078822&targetid=2299003535955&device=c&mktype=pla&googleloc=9197900&poi=&campaignid=21214315381&mkgroupid=161363866036&rlsatarget=aud-1480434318228:pla-2299003535955&abcId=9407526&merchantid=6296724&gad_source=1&gclid=Cj0KCQiApNW6BhD5ARIsACmEbkUe2tbMQT4BebNOx7CloHfzdmziJ2jf6GUUTnqwk8gi0hi2tQviGoIaAkjFEALw_wcB)
+6. **惠普打印机 HP LaserJet M110we(已出售)**
 
 7. **电吹风 7 MAGIC Model 7M318**
 
@@ -96,10 +79,7 @@
 - 现价：$10
   ![alt text](03782614825e98e8ff820721bb43eef.jpg)
 
-16. **伸缩防身棍（未使用）**
-
-- 现价：$10
-  ![alt text](4b8efe2da684911ef43f4ccffe34b2a.jpg)
+16. **伸缩防身棍(已出售)**
 
 17. **迷你搅拌机**
 

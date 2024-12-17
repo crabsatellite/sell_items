@@ -1,24 +1,32 @@
-### 二手 Newport, NJ 07310 自提物品清单与价格
+### 二手 Newport, NJ 07310 自提物品清单与价格（白菜价！）
 
 #### 家具与大件
 
 1. **King Size 床垫**
 
    - 原价：$380
-   - 现价：$10
+   - 现价：免费！
    - 提货时间：需 12.20 号以后
    - [商品链接](https://a.co/d/7brqP5m)
 
 2. **电脑桌**
 
-   - 现价：$20
-   - 提货时间：需 12.20 号以后
+   - 现价：免费！
    - [商品链接](https://www.amazon.com/dp/B0BKSCMG37?ref=ppx_pop_mob_ap_share)
 
 3. **电脑椅**
-   - 现价：$20
-   - 提货时间：需 12.20 号以后
+
+   - 现价：免费！
    - [商品链接](https://www.amazon.com/dp/B0B8CTHFYF?ref=ppx_pop_mob_ap_share)
+
+4. **餐桌**
+
+   - 现价：免费！
+     ![alt text](bd6c66f34ccc9ae648dfcc7450ce60e.jpg)
+
+5. **餐椅**
+   - 现价：免费！
+     ![alt text](eace5cc8944ca0c9fb51db243140b84.jpg)
 
 #### 电子产品
 

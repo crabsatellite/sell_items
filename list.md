@@ -25,8 +25,13 @@
      ![alt text](bd6c66f34ccc9ae648dfcc7450ce60e.jpg)
 
 5. **餐椅**
+
    - 现价：免费！
      ![alt text](eace5cc8944ca0c9fb51db243140b84.jpg)
+
+6. **塑料储物柜**
+   - 现价：免费！
+     ![alt text](32f6b65e1f81f8fec4e6d3a184792cc.jpg)
 
 #### 电子产品
 
